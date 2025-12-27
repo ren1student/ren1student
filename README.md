@@ -7,7 +7,7 @@ I’m **@ren1student**
 
 💞️ Let's learn and discuss the world together. Whether it’s sharing tips on optimizing code, exchanging ideas about character backstories, or talking about the latest trends in animation, I’m always up for a good conversation!
 
-📫 You can reach me through my personal website: [https://mine-lilac.vercel.app/](https://mine-lilac.vercel.app/)
+📫 You can reach me through my personal website(VPN): [https://mine-lilac.vercel.app/](https://mine-lilac.vercel.app/)
 
 😄 Pronouns: ...
 
